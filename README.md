@@ -1,1 +1,0 @@
-# shimmand.github.io
